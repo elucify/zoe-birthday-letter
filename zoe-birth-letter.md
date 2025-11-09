@@ -25,8 +25,9 @@ soon you'll be off on your own to practice the love your mama and I passed on to
 
 Right now, you're a squirming newborn, barely able to focus her eyes. And right now,
 you're my beautiful, grown-up Zoe, of whom I could not be more proud. I have more faith
-in this than you can imagine. It's a statement of faith for me that I write these words
-- to tell you I love you and always will, until I die and, God willing, afterwards.
+in this than you can imagine. It's a statement of faith for me that I write these
+words - to tell you I love you and always will, until I die and, God willing,
+afterwards.
 
 Your mother was so brave and so beautiful this morning, Zoe. She was afraid, but went
 through it with love for you and me. Zoe, your mother is one of the most profoundly good
