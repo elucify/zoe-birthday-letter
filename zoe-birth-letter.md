@@ -13,7 +13,7 @@ yelling and coughing. Learning to breathe.
 Right now, as I write this, I am eating leftover Ethiopian food - the leftovers from the
 dinner your uncle Eric and I were eating last night when your mother called me to say
 she was in labor. Right now you are sleeping (I imagine) in the nursery at GWU hospital,
-and the nurses are taking are if you every need - and bringing you to your mommy to
+and the nurses are taking care of your every need - and bringing you to your mommy to
 nurse when you need to.
 
 Zoe, you'll never be able to imagine, unless or until you have children of your own, how
